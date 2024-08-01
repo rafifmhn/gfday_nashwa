@@ -1,1 +1,1 @@
-# gfday_nashwa
+follow my account to get the latest update info
